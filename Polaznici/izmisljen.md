@@ -1,1 +1,1 @@
-ovo je neki izmisljen polaznik
+Promena izmisljenog za vezbu
