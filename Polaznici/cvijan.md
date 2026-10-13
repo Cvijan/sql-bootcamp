@@ -1,1 +1,1 @@
-Ја сам ту. Ja sam Ognjen B.
+Ја сам ту. Ja sam Ognjen Barosh.
