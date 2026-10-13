@@ -1,0 +1,1 @@
+Promena izmisljenog za vezbu
