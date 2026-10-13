@@ -1,0 +1,1 @@
+Moje ime je Stefan, tu sam
