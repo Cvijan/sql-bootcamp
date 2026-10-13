@@ -1,1 +1,0 @@
-Napravio sam fajl sa svojim imenom.
